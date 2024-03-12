@@ -1,0 +1,1 @@
+Our session link is [here](https://www.notion.so/Week-9-Mini-Project-Taijitu-Symbol-1-0eafc31b3f4e4a61bea6b9fe197d3870?pvs=4)

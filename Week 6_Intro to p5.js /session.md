@@ -1,0 +1,1 @@
+Our session link is [here](https://www.notion.so/Week-6-Introduction-to-JavaScript-and-p5js-1-821a8a676bd840e1a262385f7f7b8532?pvs=4)

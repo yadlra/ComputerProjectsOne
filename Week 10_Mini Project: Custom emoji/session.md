@@ -1,0 +1,1 @@
+Our session material is [here](https://www.notion.so/Week-10-Mini-Project-Custom-Emoji-1-7eb94f5743444436b97d23ad88fd97ce?pvs=4)

@@ -1,0 +1,1 @@
+Our session link is [here](https://www.notion.so/Week-7-Starting-a-JS-project-1-4b6b2df77f0b458f9e66ee7b2f056853?pvs=4)
